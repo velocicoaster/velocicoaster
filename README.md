@@ -1,2 +1,2 @@
-![huhh](https://github.com/velocicoaster/velocicoaster/assets/163074010/c08b643c-fec5-4bfe-966d-8d5d5a5bf57b)
+![huhh](https://github.com/velocicoaster/velocicoaster/assets/163074010/96c49e32-f6c2-4bd5-b003-28a89d607cfc)
 
