@@ -14,4 +14,4 @@ inspo is ok just dont copy my whole pony
 
 im not a shipping person so dont be suprised if i have "(shipname) dni" in my name ... (as long as u keep it platonic i dont mind)
 
-MY LESBIAN GOJO IS A JOKE
+discord : inumakipilled
