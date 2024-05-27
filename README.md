@@ -1,4 +1,4 @@
-![CUTIE](https://github.com/velocicoaster/velocicoaster/assets/163074010/73988d0f-0de4-4afe-aa0c-23161ef84b99)
+OKAY what the flip the image stopped working
 
 hey im may or whatever u know me as
 
