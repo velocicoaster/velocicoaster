@@ -1,4 +1,4 @@
-OKAY what the flip the image stopped working
+![hakari](https://github.com/velocicoaster/velocicoaster/assets/163074010/39a38ceb-b189-4420-9a9d-6edc0554b7fd)
 
 hey im may or whatever u know me as
 
