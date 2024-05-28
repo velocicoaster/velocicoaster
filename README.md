@@ -1,4 +1,4 @@
-![hakari](https://github.com/velocicoaster/velocicoaster/assets/163074010/39a38ceb-b189-4420-9a9d-6edc0554b7fd)
+![puf](https://github.com/velocicoaster/velocicoaster/assets/163074010/b1e6255f-cc25-4457-b60d-b5e19f51802d)
 
 hey im may or whatever u know me as
 
