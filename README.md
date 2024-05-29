@@ -26,4 +26,7 @@
 
  that should be it idk what else to add bai love ya
 
+ ![fulcf](https://github.com/velocicoaster/velocicoaster/assets/163074010/81df6202-1ffd-4329-9c6c-a4cd29b9ff7b)
+
+
  
