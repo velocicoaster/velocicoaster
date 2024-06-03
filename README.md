@@ -1,4 +1,4 @@
-![nyami and mimi](https://github.com/velocicoaster/velocicoaster/assets/163074010/82907c45-c15a-4e2b-b69d-a9302fcfcc11)
+![GHWY27NWwAAOXm5](https://github.com/velocicoaster/velocicoaster/assets/163074010/dabd9051-cfcf-4cff-904a-624a3f7a6b5b)
 
 ──⭒─⭑─⭒────⭒─⭑─⭒──**MORE INFO 4 PONYTOWN**──⭒─⭑─⭒────⭒─⭑─⭒──
 
