@@ -10,3 +10,10 @@ https://github.com/velocicoaster/velocicoaster/assets/163074010/03abc0a7-a553-44
 
 ``DONT COPY MY SKINS!!!!!!! ASK FOR INSPO FOR COSPLAYS ONLY NO OCS``
 
+``i usually sit around jjk / market or pathway to spawn....... or im clover hunting or something idk``
+
+``i really dont gaf who interacts as long as ur not a freak or a dick ur ok with me``
+
+that should be it idk what else to add
+
+click patreon for more info . sign my retrospring!
