@@ -8,6 +8,5 @@ https://github.com/velocicoaster/velocicoaster/assets/163074010/03abc0a7-a553-44
 
 ``mostly offtab or doing something irl so its best to whisper me to int``
 
-``**DONT COPY MY SKINS!!!** ASK FOR INSPO FOR COSPLAYS **ONLY** NO OCS``
-
+``DONT COPY MY SKINS!!!!!!! ASK FOR INSPO FOR COSPLAYS ONLY NO OCS``
 
