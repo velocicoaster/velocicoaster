@@ -15,3 +15,5 @@ https://github.com/velocicoaster/velocicoaster/assets/163074010/03abc0a7-a553-44
 that should be it idk what else to add
 
 click patreon for more info . sign my retrospring!
+
+![shadow-garden-the-eminence-in-shadow](https://github.com/velocicoaster/velocicoaster/assets/163074010/a19e09a4-5896-4896-8345-fb3a66df1a4f)
