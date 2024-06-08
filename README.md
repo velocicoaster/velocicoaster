@@ -16,4 +16,5 @@ that should be it idk what else to add
 
 click patreon for more info . sign my retrospring!
 
-![shadow-garden-the-eminence-in-shadow]([https://github.com/velocicoaster/velocicoaster/assets/163074010/a19e09a4-5896-4896-8345-fb3a66df1a4f](https://64.media.tumblr.com/ae9d986d6edab1849178449bd9c133c8/032a74bf25e68ef8-7e/s1280x1920/a0cb15868a170a2a36426be6f1d329d01addf5cc.jpg))
+![tumblr_ae9d986d6edab1849178449bd9c133c8_a0cb1586_1280](https://github.com/velocicoaster/velocicoaster/assets/163074010/f2d7ca81-c947-434a-a051-cf65fb7b789d)
+
