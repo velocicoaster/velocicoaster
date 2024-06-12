@@ -1,4 +1,4 @@
-https://github.com/velocicoaster/velocicoaster/assets/163074010/5656b8c1-3ce3-4fcb-a700-f3c1a57269da
+![Screenshot 2024-06-11 201250](https://github.com/velocicoaster/velocicoaster/assets/163074010/4f9c66bb-ac1c-4c60-bea4-9476bc39e138)
 
 >> __ponytown info . . .__
 
