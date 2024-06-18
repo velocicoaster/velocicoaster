@@ -4,7 +4,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　``❝ MAY . LU LU . KEL ❞``
                           
-　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
+　　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR # THEY / THEM**
 
 　　　　　　　　　　　　　　　　　　　　　　　　　 　　**DNC 一 C+H 一 INT**                                                    
 
