@@ -18,6 +18,6 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [ROBLOX](https://www.roblox.com/users/2594206940/profile)
 
-  　　　　　　　　　　　　　　　　　　　　　　　　　 彡 ` [TIKTOK](https://www.tiktok.com/@lnumakipilled)
+  　　　　　　　　　　　　　　　　　　　　　　　　　   彡 ` [TIKTOK](https://www.tiktok.com/@lnumakipilled)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [INSTAGRAM](https://www.instagram.com/inumakipilled/?hl=en)                          
