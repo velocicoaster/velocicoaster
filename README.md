@@ -6,7 +6,7 @@
                           
 　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
 
-　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
+　　　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
                             
