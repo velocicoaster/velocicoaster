@@ -6,3 +6,4 @@
                           
 　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
 
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　~~FICTKIN , SYNPATH , COPINGLINK~~
