@@ -6,7 +6,7 @@
                           
 　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　> see also : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
+　　　　　　　　　　　　　　　　　　　　　　　　> see also : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
 　　　　　　　　　　　　　　　　　　　　　　　　~~FICTKIN , SYNPATH , COPINGLINK~~
 
