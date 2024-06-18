@@ -8,7 +8,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
+　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
                             
 　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` **DISCORD** :: inumakipilled
                           
