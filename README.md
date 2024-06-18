@@ -4,5 +4,5 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　``❝ MAY . LU LU . KEL ❞``
                           
-　　　　　　　　　　　　　　　　　　　　　　　　**MINOR　　　THEY / THEM**
+　　　　　　　　　　　　　　　　　　　　　　　　　　**MINOR　　THEY / THEM**
 
