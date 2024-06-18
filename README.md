@@ -9,7 +9,9 @@
 　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
-
+                            
+　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` **DISCORD** :: inumakipilled
+                          
 　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [SIGN MY RETROSPRING](https://retrospring.net/@spoonedritsu)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [TUMBLR](https://www.tumblr.com/settings/blog/elderlu)                        
