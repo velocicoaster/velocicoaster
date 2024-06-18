@@ -6,6 +6,8 @@
                           
 　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
 
+　　　　　　　　　　　　　　　　　　　　　　　　　 　　**DNC 一 C+H 一 INT**                                                    
+
 　　　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
 　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
