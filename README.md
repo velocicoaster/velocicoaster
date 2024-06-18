@@ -6,8 +6,16 @@
                           
 　　　　　　　　　　　　　　　　　　　　　　　　　 **MINOR　　　　THEY / THEM**
 
-　　　　　　　　　　　　　　　　　　　　　　　　> see also : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
+　　　　　　　　　　　　　　　　　　　　　　　　> see : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS``
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS && SOCIALS``
 
-                        
+　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [SIGN MY RETROSPRING](https://retrospring.net/@spoonedritsu)
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [TUMBLR](https://www.tumblr.com/settings/blog/elderlu)                        
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [ROBLOX](https://www.roblox.com/users/2594206940/profile)
+
+  　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [TIKTOK](https://www.tiktok.com/@lnumakipilled)
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　彡 ` [INSTAGRAM](https://www.instagram.com/inumakipilled/?hl=en)                          
