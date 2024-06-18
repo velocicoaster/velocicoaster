@@ -8,6 +8,6 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　> see also : [patreon](https://www.patreon.com/togeinumaki/about) , [pronouns.cc](https://pronouns.cc/@togeinumaki)
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS``
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　``✎ ... LINKS``
 
                         
